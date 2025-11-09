@@ -19,4 +19,4 @@ We’re a **highly rated local lawn care company** known for **great communicati
 1. **Fill out the form below**. We'll respond within a few hours with next steps.  
 2. Or, **call or text us** directly at **[256-400-0022](tel:256-400-0022)** to schedule your cleanup.  
 
-Let's get your yard looking spotless and ready for the holidays.
+Let's get your yard looking spotless.
