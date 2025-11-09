@@ -1,7 +1,6 @@
 # Leaf Cleanups Made Easy 🍂
 
-We make leaf removal simple and efficient.  
-Our crew of **2 or more technicians** will come to your property with a [**leaf collection machine**](https://www.facebook.com/share/v/17oQpdeA2J/) to gather and remove leaves thoroughly.
+We make leaf removal simple and efficient. Our crew of **2 or more technicians** will come to your property with a [**leaf collection machine**](https://www.facebook.com/share/v/17oQpdeA2J/) to gather and remove leaves thoroughly.
 
 - **Leaves are bagged** and placed at your **curb for city pickup**.  
 - **Leaves that can’t be bagged** will be **mulched on-site** for a clean finish.  
