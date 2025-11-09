@@ -8,12 +8,6 @@ We make leaf removal simple and efficient. Our crew of **2 or more technicians**
 
 ---
 
-## About Us
-
-We’re a **highly rated local lawn care company** known for **great communication**, **quick scheduling**, and **consistent quality**. [Learn more about us here](https://share.google/98DBOTHOxJUT0OfvL).
-
----
-
 ## How It Works
 
 1. **Fill out the form below**. We'll respond within a few hours with next steps.  
