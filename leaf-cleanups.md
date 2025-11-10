@@ -4,7 +4,7 @@ We make leaf removal simple and efficient. Our crew of **2 or more technicians**
 
 - **Leaves are bagged** and placed at your **curb for city pickup**.  
 - **Leaves that can’t be bagged** will be **mulched on-site** for a clean finish.  
-- Pricing is **$120/hour**. Most jobs take **1–2 hours**, though we’ve done cleanups lasting up to **8 hours**.
+- Pricing is **$120/hour**. Most jobs take **1-2 hours**, though we’ve done longer cleanups lasting up to **8 hours**.
 
 ---
 
